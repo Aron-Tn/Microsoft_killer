@@ -27,7 +27,6 @@ Just double click on "Microsoft Killer V1.exe"
 *Contact*
 ----
 ```
-[+] Personal account : fb.com/Aron.Tn.official/
 [+] Facebook Page : fb.com/aron.tn
 [+] Telegram : @aron_tn
 [+] Telegram Channel : https://t.me/Aron_Tn_Store_Official
